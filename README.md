@@ -1,3 +1,6 @@
+![Amber-Mattis-me-copy](https://user-images.githubusercontent.com/71667419/110212093-5ea81a00-7e5f-11eb-8380-c2dd6a49bc54.png)
+<hr>
+
 ### Hi there 👋
 
 <!--
